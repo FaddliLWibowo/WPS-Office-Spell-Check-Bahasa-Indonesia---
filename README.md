@@ -1,1 +1,1 @@
-"# WPS-Office-Spell-Check-Bahasa-Indonesia---" 
+"# WPS-Office-Spell-Check-Bahasa-Indonesia---"
